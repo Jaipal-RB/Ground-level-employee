@@ -1,4 +1,5 @@
 # Ground-level-employee
 who knows problem
-who work for everyone
+and work for everyone
 without them cleanliness is not possible
+so please take care and respect them
